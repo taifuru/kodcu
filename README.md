@@ -1,1 +1,1 @@
-kankim bunu okuyorsan git la nabacan kodları 
+nabacan kodları 
