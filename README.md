@@ -1,1 +1,2 @@
 nabacan kodları 
+lol gel
